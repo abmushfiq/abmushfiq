@@ -1,3 +1,3 @@
-![pfsti](https://user-images.githubusercontent.com/53420663/122279220-6fa80300-cf05-11eb-9130-32137d1fd460.png)
+![pist](https://user-images.githubusercontent.com/53420663/122279689-f5c44980-cf05-11eb-9347-adcb06abd743.png)
 ### Mushfiq Ahmed 
 #### (Engineer & Software Developer)
